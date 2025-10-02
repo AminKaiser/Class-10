@@ -34,4 +34,4 @@ If not, **don’t worry** — you can use the **college printer** facilities.
 
 ---
 
-✨ *If you have any more questions, feel free to ask before submission!* ✨
+
